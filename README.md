@@ -1,5 +1,5 @@
 Mykeywords:
-LOYAL & DEDICATION & EQUILIBRIUM 🧢
+LOYAL & DEDICATION & EQUILIBRIUM for a real peace and progress🧢
 P-Multimedia ✨
 Passionate abt languages 📚
         &
